@@ -1,4 +1,6 @@
 # goodreadmes
 Good README
 
-At Some pont inn the distaent futre ther was a n empiree whihc wsa knwno too bee very pwerful. 
+At some point in the distant future there was an empire which was knwon to be very powerful. 
+
+Teh nme of teh empiree wsa Roam.
